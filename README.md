@@ -1,1 +1,2 @@
 # Journal-1-Topic-Beginning-of-the-course.
+In the beginning of the course, we were told to list out the technological gadgets around us in our campus.And then we categorized them into different types of technological gadgets. Based on their functions like solar based, electrical based, digital based and so on. Then we were taught about including mails during writing in google doc. sheets.And In this course also we got to know about the elements in the emails like Cc,Bc and so on.We learnt how to mail someone in a proper manner.
